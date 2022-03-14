@@ -1,0 +1,2 @@
+# kodluyoruz-repo-
+KODLUYORUZ  EGİTİMİ KAPSAMİNDA ACTIGIM İLK REPO 
